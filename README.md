@@ -3,7 +3,7 @@
 HENRY: HE/HIM ![](https://64.media.tumblr.com/070178f343855a964a2252372cbd0775/a094d1d85186ab64-f5/s75x75_c1/178ed17ecdd8c75507b13fefc3d8f53b7f11ee97.gifv)
 
  IM 18,![](https://64.media.tumblr.com/bd68a7d67f06fbaebc920929208f63ee/65ebec8c5d63c44e-50/s75x75_c1/9702e90aff23217f1111bf5410f5dd0a89af4f6f.gifv)
- i wish to make new friends so pls int! i have my friends who i adore and i am usually always with them ![](https://64.media.tumblr.com/4b05dd0b9dd13ff9ec08107c29cea619/51d5a1efca1b7fde-ab/s75x75_c1/c8062d8dfb070ec070372e2ddf7c71c07aa9a944.gifv) i LOVE fnaf and i like dandys world, sometimes. and i can be a bit hyper when meeting new people as a heads up! oh yeah yellowjackets fans PLEASE int i feel like you dont exist. ![](https://64.media.tumblr.com/e7f97fd6c614c4feccf29ef8cb012053/51d5a1efca1b7fde-fa/s75x75_c1/fb8c2bdb9f77bfff47ff356ee8adee230d88e68f.gifv) i also have my beautiful bf who i love so much! i love you milo! <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/3457150a-fcc8-4ff3-a7fc-567620874a6a" />
+ i wish to make new friends so pls int! i have my friends who i adore and i am usually always with them ![](https://64.media.tumblr.com/4b05dd0b9dd13ff9ec08107c29cea619/51d5a1efca1b7fde-ab/s75x75_c1/c8062d8dfb070ec070372e2ddf7c71c07aa9a944.gifv) i LOVE fnaf and i like dandys world, sometimes. and i can be a bit hyper when meeting new people as a heads up! oh yeah yellowjackets fans PLEASE int i feel like you dont exist. i also have my beautiful bf who i love so much! i love you milo! and i love shadow freddy n RWQFSFASXC SO much my favs forever <img width="50" height="60" alt="image" src="https://github.com/user-attachments/assets/c6969e0e-ee62-4e27-9602-e1d8930e4da2" /> so me and boyfie
 
 
  
@@ -12,7 +12,7 @@ HENRY: HE/HIM ![](https://64.media.tumblr.com/070178f343855a964a2252372cbd0775/a
 
 DNI ![](https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv)
 
-basic dni lolz, proshippers n under 16s :p
+basic dni lolz, proshippers n under 16s :p ![](https://64.media.tumblr.com/e7f97fd6c614c4feccf29ef8cb012053/51d5a1efca1b7fde-fa/s75x75_c1/fb8c2bdb9f77bfff47ff356ee8adee230d88e68f.gifv)
 
 ![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)
 
