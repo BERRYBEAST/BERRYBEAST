@@ -8,7 +8,7 @@ HENRY: HE/HIM ![](https://64.media.tumblr.com/070178f343855a964a2252372cbd0775/a
  i wish to make new friends so pls int! i have my friends who i adore and i am usually always with them ![](https://64.media.tumblr.com/4b05dd0b9dd13ff9ec08107c29cea619/51d5a1efca1b7fde-ab/s75x75_c1/c8062d8dfb070ec070372e2ddf7c71c07aa9a944.gifv) i LOVE fnaf and i like dandys world, sometimes. and i can be a bit hyper when meeting new people as a heads up! oh yeah yellowjackets fans PLEASE int i feel like you dont exist. i also have my beautiful bf who i love so much! i love you milo! and i love shadow freddy n RWQFSFASXC SO much my favs forever <img width="50" height="60" alt="image" src="https://github.com/user-attachments/assets/c6969e0e-ee62-4e27-9602-e1d8930e4da2" /> so me and boyfie
  
 
- ![](https://64.media.tumblr.com/2fd73d9597058879b190f6dcd4fbbf3c/c0ec5d5755c014b6-1d/s400x600/bdf827b2633837528dcebf74192f9ff1de2147b6.gifv) 
+ ![](https://64.media.tumblr.com/2fd73d9597058879b190f6dcd4fbbf3c/c0ec5d5755c014b6-1d/s400x600/bdf827b2633837528dcebf74192f9ff1de2147b6.gifv) ![](https://64.media.tumblr.com/e9c1ec8fed03e9608d7c867a0d7fbe70/96d798a6ec5d74ce-50/s400x600/cca0588b5482bf1f87bf2e7469d5c3abef578b24.gifv)
 
 DNI ![](https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv)
 
