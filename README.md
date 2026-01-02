@@ -12,7 +12,7 @@ HENRY: HE/HIM ![](https://64.media.tumblr.com/070178f343855a964a2252372cbd0775/a
 
 DNI ![](https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv)
 
-basic dni lolz, proshippers n under 16s :p ![](https://64.media.tumblr.com/e7f97fd6c614c4feccf29ef8cb012053/51d5a1efca1b7fde-fa/s75x75_c1/fb8c2bdb9f77bfff47ff356ee8adee230d88e68f.gifv)
+basic dni lolz, proshippers n under 16s i also block freely so don't get bothered by that:p ![](https://64.media.tumblr.com/e7f97fd6c614c4feccf29ef8cb012053/51d5a1efca1b7fde-fa/s75x75_c1/fb8c2bdb9f77bfff47ff356ee8adee230d88e68f.gifv)
 
 ![](https://static.wikia.nocookie.net/fivenightsatfreddys/images/8/86/267CF59E-5A49-416B-AD78-2ED2BD150771.gif/revision/latest/scale-to-width/360?cb=20180722190441)![](https://static.wikia.nocookie.net/freddys-world/images/b/bc/1mwIt26.gif/revision/latest/thumbnail/width/360/height/360?cb=20160124133252)
 
