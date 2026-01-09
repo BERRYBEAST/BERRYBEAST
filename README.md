@@ -18,6 +18,22 @@ basic dni lolz, proshippers n under 16s i also block freely so don't get bothere
 
 ![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)
 
+<img width="196" height="212" alt="image" src="https://github.com/user-attachments/assets/dc275aae-ce02-47f6-8cfd-4019597af13b" /> <img width="140" height="204" alt="image" src="https://github.com/user-attachments/assets/c7d8502a-e82a-4438-8ed1-72ecaf059b32" /> <img width="200" height="212" alt="image" src="https://github.com/user-attachments/assets/67b3465b-b79e-4518-88da-50e6642e6b72" /> <img width="152" height="204" alt="image" src="https://github.com/user-attachments/assets/2ddebd8e-9b1a-4799-bb83-e859fc504a26" /> <img width="196" height="216" alt="image" src="https://github.com/user-attachments/assets/d81f2373-526c-4a29-ab0c-0db5ceda7d2f" /> <img width="192" height="224" alt="image" src="https://github.com/user-attachments/assets/4452f081-96f2-4895-a38d-43c1e57f13a0" /> <img width="176" height="196" alt="image" src="https://github.com/user-attachments/assets/715b80a3-9cc3-40a7-ac6a-f2aa9b83bd00" /> <img width="148" height="208" alt="image" src="https://github.com/user-attachments/assets/a9156a87-5449-4ff0-bb2f-830ff80edf3d" /> <img width="148" height="212" alt="image" src="https://github.com/user-attachments/assets/5d7efba5-f014-4a62-8cda-dd729944b9a2" /> <img width="172" height="188" alt="image" src="https://github.com/user-attachments/assets/dba16bca-18ba-4cb4-ac72-792ce42f869d" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)
+
 <img width="104" height="104" alt="image" src="https://github.com/user-attachments/assets/1693b181-74be-43a8-b167-0b87db610917" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/04c673c0-31cc-4b19-a94d-abf2ecc9f8e6" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/a663ef50-f273-45bd-8699-6d19ba1a8991" />  <img width="92" height="92" alt="image" src="https://github.com/user-attachments/assets/589c273b-96ce-4b2d-82d9-6c3c873c2210" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/8067d116-b5af-493d-a9e8-02a80a314851" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/be4141a8-d8be-4b1d-a745-d5cc23db38a3" /> <img width="104" height="104" alt="image" src="https://github.com/user-attachments/assets/ef65b851-b22f-42c2-bbf5-57fc4a8767df" /> <img width="92" height="92" alt="image" src="https://github.com/user-attachments/assets/bfdb3384-2f5e-458d-a89e-b67d7f22edb9" />  
 
 ![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)  
