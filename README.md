@@ -5,7 +5,7 @@
 <p align="center">
    <b>૮(¬`‸´¬)ა</b><br>
    HENRY<br>
-  18 HE/HIM!<br>
+  19 HE/HIM!<br>
   <img width="400" height="13" alt="image" src="https://github.com/user-attachments/assets/00789e9d-9f8b-4c4a-b057-79c0ab34abb7" />
 
 
@@ -16,7 +16,7 @@
 
 <p align="center">
    <b>BYF</b><img src="https://64.media.tumblr.com/0a7289dbb97ebfe2095a012de32a9f22/1bf8221d27fdef63-b1/s75x75_c1/205d575912c44a1bd51d769d407532dcdf2afb81.gifv"/><br>
-   I AM PRETTY EASY GOING WITH WHO INTS WITH ME, BUT I AM 18 SO ID PREFER PEOPLE IN MY AGE GROUP LOL +
+   I AM PRETTY EASY GOING WITH WHO INTS WITH ME, BUT I AM 19 SO ID PREFER PEOPLE IN MY AGE GROUP LOL +
    I AM ALWAYS WITH MY PALS AND BF WHO I LOVE VERY MUCH LOL #SHOUTOUTMILO
 
 
